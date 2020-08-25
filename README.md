@@ -25,7 +25,6 @@ Bloomington Lake: https://user-images.githubusercontent.com/69994220/91121481-7e
 
 
 
-
 ## Links
 
 * URL for Twitter: https://twitter.com/fasterchrome/status/1297362922239193088
